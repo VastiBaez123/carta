@@ -1,0 +1,2 @@
+# carta
+segunda opcion
